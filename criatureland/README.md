@@ -1,0 +1,2 @@
+criautreland es un lugar donde habitan criaturas de lo mas aterradoras y nuestro protagonista merlin un viejo mago que sin querer se ah metido a este mundo tendra que salir derrotando a criaturas mitologicas como el basilisco, el dragon, la esfinge, la sirena, unicornio, quimera, hidra, gorgona, manticora, silfide, ogro,
+el quilin, fenghuang, amanojaku, Bake-kujira, Basan, Genbu
